@@ -2,7 +2,6 @@
 title: Dreams
 ---
 
-#***Dreams***
 
 *"What we see in our sleep is considered as dreams"* that was my thought when I hear about dreams. But later I came to know that everything we see in our sleeps are not dreams but pieces of building blocks(mougts). Building mougts are different in different people but everyone have it. 
 Building mougts are pieces of thought. Last night what we actively engaged in can remain in our thoughts as mougts. At the beginning these mougts arrange itself to please us or scare us. Pleasing and scaring depends on what our mind wants. 
